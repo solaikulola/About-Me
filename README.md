@@ -1,1 +1,3 @@
 About Me
+
+Spencer Curtis
