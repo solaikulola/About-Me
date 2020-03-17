@@ -1,5 +1,4 @@
 About Me
 
-Spencer Curtis
+Israel Aikulola
 
-Favorite Color: Blue
